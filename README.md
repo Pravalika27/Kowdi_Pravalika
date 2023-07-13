@@ -1,1 +1,0 @@
-# Kowdi_Pravalika
